@@ -6,4 +6,7 @@
 
 <img width="374" height="374" alt="jjjjj" src="https://github.com/user-attachments/assets/7c095a5d-7fae-416d-872b-3322ed074938" />
 
-sooo i love kdj ; ovr , florian brand, emil mesmer ; idv , go for It, nakamura! , ivan ; alnst , cirrus ; litc , the summer hikaru died , the hunter who wants to lay low , ji9star & sunset ; gmnd !!
+
+sooo guysss..
+
+i love kdj ; ovr , florian brand, emil mesmer ; idv , go for It, nakamura! , ivan ; alnst , cirrus ; litc , the summer hikaru died , the hunter who wants to lay low , ji9star & sunset ; gmnd !!
