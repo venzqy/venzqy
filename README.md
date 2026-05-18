@@ -9,4 +9,4 @@
 
 sooo guysss..
 
-i love kdj ; ovr , florian brand, emil mesmer ; idv , go for It, nakamura! , ivan ; alnst , cirrus ; litc , the summer hikaru died , the hunter who wants to lay low , ji9star & sunset ; gmnd !!
+i love kdj ; ovr , florian brand & emil mesmer ; idv , go for It, nakamura! , ivan ; alnst , cirrus ; litc , the summer hikaru died , the hunter who wants to lay low , ji9star & sunset ; gmnd !!
