@@ -1,6 +1,6 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=your-github-venzqy&label=readers+of+TWSA+++&&color=668599) :crossed_swords:  <img alt="GitHub followers" src="https://img.shields.io/github/followers/venzqy?style=flat&label=kim+dokja's+company&labelColor=grey&color=c9c1b5">
+![](https://komarev.com/ghpvc/?username=your-github-venzqy&label=readers+of+TWSA+++&&color=616161) :crossed_swords:  <img alt="GitHub followers" src="https://img.shields.io/github/followers/venzqy?style=flat&label=kim+dokja's+company&labelColor=grey&color=f8f4f5">
 
 🕮 kdj company are my followers
 
